@@ -1,3 +1,5 @@
+# Beni's Blog
+
 [change my mind](mailto:epo_freak@hotmail.de)
 
 spotted a logical error? ouch, that does hurt me. deservedly insult me by telling me of it, or laugh up your sleeve at the primate which i am.
